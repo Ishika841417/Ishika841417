@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **ishikarastogi2306@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/heyhi/Downloads/ishika%20resume_250303_150906_250322_135138.pdf](file:///C:/Users/heyhi/Downloads/ishika%20resume_250303_150906_250322_135138.pdf)
+  
 
 - ⚡ Fun fact **I am a good listener and learner...**
 
